@@ -99,9 +99,6 @@ https://montiqtech.com.br
 📧 **Email**
 montiqtech@gmail.com
 
-💬 **WhatsApp**
-https://wa.me/5543996045936
-
 ---
 
 <div align="center">
